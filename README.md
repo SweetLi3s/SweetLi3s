@@ -31,11 +31,11 @@
       <br/><br/>
     Very prone it forgetting things i am afraid?? if we do not remember you, i promise it isnt on purpose
       <br/><br/>
-    Very shy. I probably will not start a conversation unless spoken to first, but i do not mind intersction at all!
+    Very shy. I probably will not start a conversation unless spoken to first, but i do not mind interaction at all!
       <br/><br/>
-    Diagnosed ASD. We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release - mainly his teasers
+    We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release - mainly his teasers
       <br/><br/
-    Do not cooy skins please 😞😞
+    Do not copy skins please 😞😞
       <br/><br/>
     Semi AFK a large majority of the time because im honestly dilly dallying at every given moment
     <br/><br/>
