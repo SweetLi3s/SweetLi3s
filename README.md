@@ -35,11 +35,14 @@
       <br/><br/>
     We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release. Very special to us sigh
       <br/><br/
-    Do not copy skins please 😞😞
+    Do not copy skins please
       <br/><br/>
     Semi AFK a large majority of the time because im honestly dilly dallying at every given moment
     <br/><br/>
-    We also really like psychology loll. We're taking AP psych soon</p>
+    Psychology fan. please hold your tomatoes
+      <br/><br/>
+    We interchangabely use plural and singular pronouns, please do not mind it, it is a habit
+      <br/><br/></p>
   </details>
 </div>
 
@@ -56,9 +59,12 @@
       <br/><br/>
     Endogenics
       <br/><br/>
-    uhmrm Shadow Milk haters 💔 or at least specifically people who slander him with no real reason
+    uhmrm Shadow Milk haters or at least specifically people who slander him with no real reason
     <br/><br/>
-    Yume doubles preferably</p>
+    Yume doubles preferably
+    <br/><br/>
+    Other then that, just do not be a public nuisance?
+    We block freely</p>
   </details>
 </div>
 
