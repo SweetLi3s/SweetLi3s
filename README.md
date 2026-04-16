@@ -33,7 +33,7 @@
       <br/><br/>
     Very shy. I probably will not start a conversation unless spoken to first, but i do not mind interaction at all!
       <br/><br/>
-    We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release. Very special to us sigh
+    We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release back in like december of 2024. Very special to us sigh
       <br/><br/
     Do not copy skins please
       <br/><br/>
