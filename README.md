@@ -64,7 +64,9 @@
     Yume doubles preferably
     <br/><br/>
     Other then that, just do not be a public nuisance?
-    We block freely</p>
+    We block freely
+    <br/><br/>
+      -15. We are 17, anyone under 15 please dni</p>
   </details>
 </div>
 
