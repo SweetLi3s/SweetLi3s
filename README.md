@@ -12,7 +12,7 @@
 
 <p align="center">Mendacity &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  ₒᵤ   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;  Mend.</p>
 
-<p align="center">Any pronouns &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ⁺ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; plural pronouns.</p>
+<p align="center">Any pronouns &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ⁺ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
 
 <p align="center">C + H &nbsp;&nbsp;&nbsp; always &nbsp;&nbsp;&nbsp;welcome &nbsp;&nbsp;&nbsp;unless &nbsp;&nbsp;&nbsp;stated &nbsp;&nbsp;&nbsp;otherwise !</p>
 
@@ -33,7 +33,7 @@
       <br/><br/>
     Very shy. I probably will not start a conversation unless spoken to first, but i do not mind interaction at all!
       <br/><br/>
-    We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release - mainly his teasers
+    We reallyyyyy like Shadow Milk and he has been a major interest and comfort for us since before his playable release. Very special to us sigh
       <br/><br/
     Do not copy skins please 😞😞
       <br/><br/>
