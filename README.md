@@ -69,6 +69,8 @@
       -15. We are 17, anyone under 15 please dni
     <br/><br/>
       Silentshadow / Shadowsalt
+    <br/><br/>
+sourcedaters oh my goddd yall are annoying and weird. im so irritated
 </p>
   </details>
 </div>
