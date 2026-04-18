@@ -71,6 +71,8 @@
       Silentshadow / Shadowsalt
     <br/><br/>
 sourcedaters oh my goddd yall are annoying and weird. im so irritated
+    <br/><br/>
+mirrorship haters. genuine non issue
 </p>
   </details>
 </div>
